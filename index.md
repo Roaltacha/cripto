@@ -7,7 +7,7 @@ La criptografía (del griego κρύπτos (kryptós), «secreto», y γραφή 
 
 
 
-
+![Alt Text](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4d/Lorenz-SZ42-2.jpg/420px-Lorenz-SZ42-2.jpg)
 
 
 
